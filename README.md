@@ -1,2 +1,1 @@
-# govnoigrarozhinanuba
-вы говноеды
+
